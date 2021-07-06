@@ -1,1 +1,1 @@
-See https://aqua.hk.cn/lma/
+See http://aqua.hk.cn/lma/
